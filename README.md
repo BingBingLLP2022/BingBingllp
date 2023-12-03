@@ -1,0 +1,4 @@
+# BingBingllp
+/ni
+/iyux
+.uiexi
